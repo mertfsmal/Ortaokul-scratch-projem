@@ -1,0 +1,1 @@
+# Ortaokul-scratch-projem
